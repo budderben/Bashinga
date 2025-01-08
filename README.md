@@ -1,1 +1,1 @@
-# Bashinga
+#free chart
